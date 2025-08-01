@@ -10,6 +10,6 @@ Meu nome é Bruna Marcineiro Teixeira
 
   alurastartestudante@email.com
 
-  @dy_yaki
+  @brunaamtx
 
   ![](https://media.tenor.com/-X3rxmfyKWMAAAAM/rita-rita-lee.gif)
